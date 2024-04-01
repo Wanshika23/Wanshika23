@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning in UOM 
 - 💞️ I’m looking to collaborate on beginners
-- 📫 How to reach me - hwkperera@outlook.com
+- 📫 How to reach me -
 - 😄 Pronouns:Kalhara ...
 - ⚡ Fun fact:...
 
